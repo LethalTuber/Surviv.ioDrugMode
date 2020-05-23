@@ -31,4 +31,6 @@ This was a lone project made by LethalTuber. Sub to him on youtube or add him on
 Yt- https://www.youtube.com/channel/UCOaS74vIcUDhsPX1z9ltJtg?view_as=subscriber
 
 Discord-𝕬𝖌𝖊𝖓𝖙_007#5304
+
+# Go To Issues To See Pics.
 ----------------------------------------------------------------------------------------------------------------------------------
